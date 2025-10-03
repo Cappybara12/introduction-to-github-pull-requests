@@ -13,6 +13,8 @@ _Collaborate and work together on GitHub._
 
 </header>
 ![Datazip Team_s Video - Oct 3, 2025-VEED](https://github.com/user-attachments/assets/b2c1b2ee-e239-4f95-887a-f7e314174425)
+![olake-ui](https://github.com/user-attachments/assets/6081e9ad-7aef-465f-bde1-5b41b19ec6cd)
+
 
 <!--
   <<< Author notes: Step 2 >>>
