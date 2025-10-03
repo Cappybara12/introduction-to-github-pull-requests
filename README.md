@@ -12,6 +12,7 @@
 _Collaborate and work together on GitHub._
 
 </header>
+![Datazip Team_s Video - Oct 3, 2025-VEED](https://github.com/user-attachments/assets/b2c1b2ee-e239-4f95-887a-f7e314174425)
 
 <!--
   <<< Author notes: Step 2 >>>
